@@ -10,6 +10,5 @@ fdasfdsafdsfasdfd
 dfasdafdfdsf
 fadsfdasfdasfdasfdsf
 fdasfdsafdsfasdfd
-test.eastbuy.com
 fdasfaffdasf
 ffdasfdasf
