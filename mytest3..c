@@ -12,5 +12,4 @@ fadsfdasfdasfdasfasdfds
 fadsfaasdfasdfasdfasdfasdf
 fadsfdasfdasfdasfasdfds
 fadsfaasdfasdfasdfasdfasdf
-.eastbuy.com
 fdfadasfdsfdasf
