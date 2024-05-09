@@ -1,1 +1,1 @@
-eastbuy.com
+eastbu
